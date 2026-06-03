@@ -1,4 +1,4 @@
-# 
+# ذكي reversal trading bot سكريبتات لـ Mac OS | أفضل reversal trading bot سكريبتات لـ PC Windows. مع تصور البيانات و التحكم في الانزلاق — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
